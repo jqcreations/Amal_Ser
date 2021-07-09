@@ -1,20 +1,18 @@
-## Its_Me_Amal🥰
+## Its_Me_LFA/HERMIT🥰
 
-<img src=https://www.linkpicture.com/q/IMG-20210629-WA0181.jpg>
+<a href="https://www.linkpicture.com/view.php?img=LPic60e8b18b7c37e1555750312"><img src="https://www.linkpicture.com/q/IMG-20210623-WA0203.jpg" type="image"></a>
 
 
 Thank you Everyone for helping to develop this one🦋
-Join Whatsapp Group 
-# kerala Bot | Group
-https://chat.whatsapp.com/Jh3BjpsLdglJhDrea4ME52 
-
-
+Join Whatsapp status Group 
+# kerala status | Gruop 
+https://chat.whatsapp.com/FEQZ6MI9tgMKcXw3OF5fgI
 
 ## Thanks for Everything 
 ### We will always remember you..
 
-- [Yusuf Usta](https://github.com/yusufusta)
-- [@fusufs](https://t.me/fusufs)
+- LFA/LUCIFER 
+- LFA/KING
 
 <p align="center">
   <a href="https://github.com/phaticusthiccy/WhatsAsenaDuplicated/fork">
