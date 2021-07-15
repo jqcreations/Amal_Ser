@@ -1,6 +1,6 @@
 ## Its_Me_LFA/HERMIT🥰
 
-<a href="https://www.linkpicture.com/view.php?img=LPic60e8b18b7c37e1555750312"><img src="https://www.linkpicture.com/q/IMG-20210623-WA0203.jpg" type="image"></a>
+<a href="https://www.linkpicture.com/view.php?img=LPic60e8b18b7c37e1555750312"><img src="" type="image"></a>
 
 
 Thank you Everyone for helping to develop this one🦋
